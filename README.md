@@ -1,1 +1,0 @@
-# NeoTshoma.github.io
